@@ -5,4 +5,4 @@
 - 🤝   I’m looking forward to make an amazing connection with you on [LinkedIn](https://www.linkedin.com/in/know-rishi-patel/).
 - 💬   I love connecting with amazing people.
 - ⚡   Favourite Quote: “Always work hard on something uncomfortably exciting.” ― Larry Page
--     Alrighty, back to work! Nice to meet you:)
+-     Alrighty, back to work! Nice to meet ya:)
